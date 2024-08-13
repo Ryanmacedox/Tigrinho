@@ -1,2 +1,2 @@
 # Tigrinho
-Tirinhas tá pagando
+Tigrinho tá pagando
